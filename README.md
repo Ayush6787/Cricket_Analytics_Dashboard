@@ -89,7 +89,7 @@ Ayush Argonda
 
 [🔗 LinkedIn ](https://www.linkedin.com/in/ayush-argonda-48916a213/)
 
-🌐 Portfolio https://profound-alpaca-ec7224.netlify.app/
+[🌐 Portfolio ](https://profound-alpaca-ec7224.netlify.app/)
 
-📝 Medium https://medium.com/@ayushargonda6787
+[📝 Medium ](https://medium.com/@ayushargonda6787)
 
